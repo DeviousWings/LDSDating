@@ -34,3 +34,16 @@ We look for sincerity in the essays given and no double speak.
 
 An understanding of the responsibility they wish to have.
 
+## Process
+- make profile
+-how the gospel should play out in dating/marraige/parenthood
+- Trying to build a family not social media presense.
+- Share with other faiths
+- No pay to unlock more features
+- Sould only pay for a short amount of time to get your marriage
+
+## Features
+
+- Connect to Family Search so relatives will not get together.
+-
+
